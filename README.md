@@ -1,8 +1,8 @@
 # Creative Content & Copywriting Portfolio – Steve White
 
-Content lead and journalist with 15+ years’ experience creating engaging stories for brands, media and digital platforms.
+I create clear, engaging content that connects with real audiences through journalism, brand storytelling and digital platforms.
 
-My work spans sport, business, tech and culture—from long-form journalism and interviews to web copy, brand storytelling and digital content.
+With 15+ years’ experience, I work across sport, business, tech and culture, producing everything from long-form features and interviews to web copy and campaign content.
 
 ---
 
