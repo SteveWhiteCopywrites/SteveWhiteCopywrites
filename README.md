@@ -6,7 +6,7 @@ With 15+ years’ experience, I work across sport, business, tech and culture, p
 
 ---
 
-## 🔗 Start Here
+## Welcome
 
 If you're reviewing my work, these are the best places to begin:
 
@@ -17,7 +17,7 @@ If you're reviewing my work, these are the best places to begin:
 
 ---
 
-## 🧠 What I Do
+## What I Do
 
 - Brand storytelling and tone of voice development  
 - Long-form and short-form content (features, web, campaigns)  
@@ -27,7 +27,7 @@ If you're reviewing my work, these are the best places to begin:
 
 ---
 
-## 📂 Portfolio Areas
+## Portfolio Areas
 
 - Commercial Copywriting  
 - Sports Copywriting  
@@ -38,7 +38,7 @@ If you're reviewing my work, these are the best places to begin:
 
 ---
 
-## 📫 Contact
+## Contact
 
 📧 stephen@skybluecreative.co.uk  
 🌐 https://skybluecreative.co.uk
