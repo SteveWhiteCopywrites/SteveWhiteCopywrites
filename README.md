@@ -8,7 +8,7 @@ With 15+ years’ experience, I work across sport, business, tech and culture, p
 
 ## Welcome
 
-If you're reviewing my work, these are the best places to begin:
+If you're reviewing my work, the four links below are the best places to begin. Scroll down to see all six portfolio areas.
 
 - [Commercial Copywriting](https://github.com/SteveWhiteCopywrites/Commercial_Copywriting)
 - [Sports Copywriting](https://github.com/SteveWhiteCopywrites/Sports_Copywriting)
